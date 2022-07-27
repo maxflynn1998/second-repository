@@ -1,6 +1,15 @@
-hi This is my new git file get fucked
-Cant be bothered
-Time to get my second commit up and going for the lads
+hi This is my new git file 
+Halloween
+Time to get my second commit up 
 
-HOw do I do this shit? 
-Please help 
+Hi world
+
+SEONC TrY WITH it 
+
+
+
+A THIRD TIME NO WAYYYYYY
+
+
+HALLAWON
+DEVOPS APPRENTICE
